@@ -1,5 +1,4 @@
-![AqS6Xm](https://github.com/user-attachments/assets/df631917-e94a-4ca2-be80-0e64f774411a)
-
+![933fd79795eb9](https://github.com/user-attachments/assets/b78eb541-830d-483e-aa67-d2153e9ea25f)
 
 
 ## 🌐 Socials:
