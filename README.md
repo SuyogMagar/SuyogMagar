@@ -1,5 +1,5 @@
-# 💫 About Me:
-👋 Hi, I’m @SuyogMagar<br>👀 I’m a Backend Engineer.<br>🌱 I’m currently learning Core Java.<br>💞️ I’m looking to collaborate on ....<br>
+![AqS6Xm](https://github.com/user-attachments/assets/df631917-e94a-4ca2-be80-0e64f774411a)
+
 
 
 ## 🌐 Socials:
